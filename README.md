@@ -1,0 +1,3 @@
+Se você baixou esse jogo...
+
+Que que tu tá fazendo da tua vida?
